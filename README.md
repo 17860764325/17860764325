@@ -1,4 +1,4 @@
 # welcome ！
-my wechat number 17860764325.
+my email : 1258774709@qq.com.
 
 if i have enough time ,i will do something .
